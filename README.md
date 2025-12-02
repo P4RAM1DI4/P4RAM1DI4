@@ -8,11 +8,15 @@
 
 
 
-should tonight be our last  
-dance with me once more  
-a small light, a secret voice  
-please listen  
-i love you
+  should 𝐭𝐨𝐧𝐢𝐠𝐡𝐭 be our 𝐥𝐚𝐬𝐭
+
+dance with 𝐦𝐞 once 𝐦𝐨𝐫𝐞
+  
+   a small 𝐥𝐢𝐠𝐡𝐭, a secret 𝐯𝐨𝐢𝐜𝐞
+   
+  please 𝐥𝐢𝐬𝐭𝐞𝐧
+
+  i 𝐥𝐨𝐯𝐞 you
 
 
 
