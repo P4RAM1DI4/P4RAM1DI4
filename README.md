@@ -19,7 +19,9 @@ i love you
 
 
 
-![Image](https://github.com/user-attachments/assets/eeac47c2-8874-482b-aac7-d6b9695a275d)
+![Rrk7ZuV](https://github.com/user-attachments/assets/7bbd4d64-8437-47de-85d6-91bcd2a57537)
+
+
 
 𓂃
 
