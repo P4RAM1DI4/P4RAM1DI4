@@ -19,7 +19,10 @@ i love you
 
 
 
-![Rrk7ZuV](https://github.com/user-attachments/assets/7bbd4d64-8437-47de-85d6-91bcd2a57537)
+<img width="500" height="346" alt="GUKlWlplMsfp_AD6qydDUTdOGFVEeoKB9Rt7WkEfD-oe-MouJX7Vvm_iUKrvHfFaCb6yOTXY-q9j1-qCo5yRjw" src="https://github.com/user-attachments/assets/5e938443-4bc0-43ef-91b8-4f2322daef47" />
+
+
+
 
 
 
