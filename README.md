@@ -1,5 +1,8 @@
 <div align="center">
 
+<img width="540" height="91" alt="tumblr_cec3dcd247eb4d0a146442e7f0de107e_db5becec_540" src="https://github.com/user-attachments/assets/48164345-7b30-42b2-9460-c55338804ede" />
+
+
 恋      ( ren irl )      19 y.o
 
 esp/eng
@@ -18,8 +21,7 @@ dance with 𝐦𝐞 once 𝐦𝐨𝐫𝐞
 
   i 𝐥𝐨𝐯𝐞 you
 
+<img width="540" height="91" alt="tumblr_fd29dc853da86ce67a318f9198b3292e_ad349ff9_540" src="https://github.com/user-attachments/assets/daa77459-37b0-4966-bf4b-a2ed1aa93823" />
 
-
-𓂃
 
 </div>
