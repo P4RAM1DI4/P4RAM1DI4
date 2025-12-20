@@ -11,9 +11,13 @@ esp/eng
 
 
 should 𝐭𝐨𝐧𝐢𝐠𝐡𝐭 be our 𝐥𝐚𝐬𝐭
+
 dance with 𝐦𝐞 once 𝐦𝐨𝐫𝐞
+
 a small 𝐥𝐢𝐠𝐡𝐭, a secret 𝐯𝐨𝐢𝐜𝐞
+
 please 𝐥𝐢𝐬𝐭𝐞𝐧
+
 i 𝐥𝐨𝐯𝐞 you
 
 <img width="540" height="91" alt="tumblr_fd29dc853da86ce67a318f9198b3292e_ad349ff9_540" src="https://github.com/user-attachments/assets/daa77459-37b0-4966-bf4b-a2ed1aa93823" />
